@@ -1,0 +1,1 @@
+# stellaris-RSS-vanilla-anomalies
